@@ -2,4 +2,3 @@
 
 Project currently live at -:
 
-http://all-n-beyond-dpbh.com/
